@@ -1,6 +1,6 @@
 
 
-# Hi, I'm Menna Allah Mohamed 👋
+# Hi, I'm MennaAllah Mohamed 👋
 
 🎓 Commerce Student | Aspiring Tech Professional
 
